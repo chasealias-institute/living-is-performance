@@ -1,0 +1,2 @@
+# living-is-performance
+chasealias institute....Living is Performance Existing as Art. Conceptual Art, Alter Art (alter-ism) Neo-Dada, Fluxus, Immersionism, Techno-Performance, Post-Modernism, New Media or whatever you happen to call it, Chasealias DS Pollack has been creating existential works of art for almost 2 decades. The lack of physical product is part of what defines Performance Art. However, a viable bi-product is key to this great art's survival.
